@@ -1,0 +1,1 @@
+# hamonajako.github.com
